@@ -1,1 +1,2 @@
 # World of Warcraft - Sylvanas
+Lady Sylvanas Windrunner, also referred to as "the Dark Lady" and "the Banshee Queen", is the former Warchief of the Horde and former supreme ruler of the Forsaken, one of the most powerful factions of undead on Azeroth.
