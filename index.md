@@ -7,3 +7,5 @@ Lady Sillyvanas Windrunner, also referred to as "the Dark Lady" and "the Banshee
 * ist hübsch
 
 >Frühstück?
+
+<img src="https://vignette.wikia.nocookie.net/wowwiki/images/e/e3/SylvanasBfA.png" />
