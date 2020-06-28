@@ -5,3 +5,5 @@ Lady Sillyvanas Windrunner, also referred to as "the Dark Lady" and "the Banshee
 * Kann gut massieren
 * Kennt gute mexikanische Restaurants
 * ist hübsch
+
+>Frühstück?
